@@ -11,4 +11,4 @@ Rotterdam has a rich cultural scene centred largely around the cultural axis bet
 
 TENT and Witte de With guarantee a relevant, innovative, experimental programme, and the numerous galleries around Witte de Withstraat and outside the city centre are also well worth your time.
 
-Added an extra line.
+The Claw was here!
