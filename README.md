@@ -1,4 +1,4 @@
-# The Restart.Network workshop
+# The Restart.Network workshop is going well!
 
 The story of the city, the bombardment and reconstruction, and the drive to innovate that locals still use today to shape their city all make Rotterdam a fascinating place to visit. Everything seems possible here, and there's so much left to explore.
 
