@@ -5,7 +5,7 @@ The story of the city, the bombardment and reconstruction, and the drive to inno
 Is Rotterdam a must-see city? Well, maybe.
 
 
-# Rich cultural scene
+# THIS IS AN EXPERIMENT (1)
 
 Rotterdam has a rich cultural scene centred largely around the cultural axis between Museumpark and Witte de Withstraat. The area includes acclaimed museums like Museum Boijmans van Beuningen, The New Institute and the Kunsthal, presenting a widely varied range of art exhibitions.
 
